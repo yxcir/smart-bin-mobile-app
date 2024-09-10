@@ -1,0 +1,1 @@
+# smart-bin-mobile-app
